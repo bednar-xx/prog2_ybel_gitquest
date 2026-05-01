@@ -9,3 +9,5 @@ Immer wieder stieß Markus auf verschiedene Monster wie Goblins, Gnolle und soga
 Schließlich erreichte Markus einen versteckten Raum im Dungeon, in dem ein mysteriöser alter Zwerg auf ihn wartete. Dieser Zwerg entpuppte sich als ein Händler und besaß einen kleinen Shop, in dem er nützliche Gegenstände und Lebensmittel verkaufte. Markus trat ein und begann mit dem Zwerg zu verhandeln.
 
 Erfrischt und gestärkt machte sich Markus auf den Weg, um die letzte Etappe seiner Quest zu erfüllen. Er kämpfte gegen eine Horde von untoten Kreaturen und bestand Prüfungen, die kaum ein anderer Held überlebt hätte.
+
+Noch tiefer im Dungeon entdeckte Markus eine uralte Steintür, deren Oberfläche mit fremden Runen bedeckt war. Als er sie berührte, begann der Boden zu beben, und aus der Dunkelheit trat ein gewaltiger Schattenwächter hervor, der das Amulet mit aller Macht beschützte. Markus hob sein Schwert, sammelte seinen letzten Mut und stellte sich der Kreatur entgegen.
