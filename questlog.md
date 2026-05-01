@@ -11,3 +11,5 @@ Schließlich erreichte Markus einen versteckten Raum im Dungeon, in dem ein myst
 Erfrischt und gestärkt machte sich Markus auf den Weg, um die letzte Etappe seiner Quest zu erfüllen. Er kämpfte gegen eine Horde von untoten Kreaturen und bestand Prüfungen, die kaum ein anderer Held überlebt hätte.
 
 Noch tiefer im Dungeon entdeckte Markus eine uralte Steintür, deren Oberfläche mit fremden Runen bedeckt war. Als er sie berührte, begann der Boden zu beben, und aus der Dunkelheit trat ein gewaltiger Schattenwächter hervor, der das Amulet mit aller Macht beschützte. Markus hob sein Schwert, sammelte seinen letzten Mut und stellte sich der Kreatur entgegen.
+
+Während Markus dem Schattenwächter gegenüberstand, bemerkte er ein schwaches Leuchten zwischen den Rissen der alten Steinmauern. Die Runen an der Tür begannen heller zu glühen, als würden sie auf seinen Mut reagieren. Mit einem entschlossenen Schritt trat Markus vor, bereit, das Geheimnis des Dungeons endgültig zu lüften.
